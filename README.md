@@ -1,1 +1,1 @@
-Equipo 26: Franco De Luca, Gustavo González, Leandro Casaretto
+  :tada: Equipo 26: Franco De Luca, Gustavo González, Leandro Casaretto
